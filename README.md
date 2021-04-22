@@ -11,7 +11,7 @@
 - Just chop the vegetables as your desire
 - Add some salt according to your taste
 - And you can garnish it with chopped vegetables
-- <img src="https://tse3.mm.bing.net/th?id=OIP.hrxoic4Mcw_av6TCndVVDAHaJ3&pid=Api&P=0&w=300&h=300" alt="salad">
+ <img src="https://tse3.mm.bing.net/th?id=OIP.hrxoic4Mcw_av6TCndVVDAHaJ3&pid=Api&P=0&w=300&h=300" alt="salad">
 - Enjoy it!
 
 - Note - I am not responsible for the taste.
